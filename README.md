@@ -2,6 +2,4 @@
 
 **Un beau jour alors que tout etait normal**
 _une fille est arrivée_
-*Elle portait un saucisson à sa ceinture*
-**Armée de ce dernier**
-_Elle s'exclama_:
+_et finalement elle est morte_:
